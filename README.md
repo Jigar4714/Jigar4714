@@ -2,7 +2,7 @@
 - 👀 I’m interested in Cyber Security
 - 🌱 I’m currently learning Master's in Cyber Security & Digital Forensics 
 - 💞️ I’m looking to collaborate on cyber security related role in tech Company
-- 📫 How to reach me:- darjij227@gmail.com
+- 📫 How to reach me:- darjij227@gmail.com , www.linkedin.com/in/jignesh-darji-8380bb294
 - 😄 Pronouns: he/him
   
 
